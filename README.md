@@ -8,7 +8,7 @@ including finance, biotech, and data analysis.
 
 Beyond tech, I have an underlying passion for education. I find fulfillment in being able to share the knowledge that I've learned with others. 
 
-Pronouns: she/her (U.S.A.)
+Pronouns: she/her
 
 
 <!---
