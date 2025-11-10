@@ -2,7 +2,7 @@
 
 💪🏻 My job here is to code new things to all my heart's desires, and your job 🫵🏻 is to have fun while you're here! 
 
-About Me: I'm a detail-oriented and quality-focused Data Science and Mathematics sophomore with a senior for exploring its intersection. 
+About Me: I'm a detail-oriented and quality-focused Data Science and Mathematics senior with a senior for exploring its intersection. 
 I'm excited to tackle challenges that push the boundaries of current technological capabilities, with a particular interest in applying these skills in all realms 
 including finance, biotech, and data analysis. 
 
