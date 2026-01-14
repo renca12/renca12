@@ -3,10 +3,10 @@
 💪🏻 My job here is to code new things to all my heart's desires, and your job 🫵🏻 is to have fun while you're here! 
 
 About Me: I'm a detail-oriented and quality-focused Data Science and Mathematics senior with a penchant for exploring its intersection. 
-I'm excited to tackle challenges that push the boundaries of current technological capabilities, with a particular interest in applying these skills in all realms 
-including finance, biotech, and data analysis. 
+I'm excited to tackle challenges that push the boundaries of current technological capabilities, with a particular interest in applying these skills in realms such as finance. 
 
-Beyond tech, I have an underlying passion for education. I find fulfillment in being able to share the knowledge that I've learned with others. 
+Beyond tech, I have an underlying passion for education. I find fulfillment in being able to share the knowledge that I've learned with others. I find this to be my way of paying it forward for the help and selflessness shown to me by my friends. 
+Please do not be afraid to reach out! I love talking to new people :).
 
 Pronouns: she/her
 
